@@ -1,4 +1,4 @@
-# 
+# secure Affinity Designer for macOS Plugin | cloud sync + grid systems offers the most advanced Affinity Designer for macOS plugin, with cloud sync and grid systems. Ideal for
 
 
 
